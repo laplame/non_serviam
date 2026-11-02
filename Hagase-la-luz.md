@@ -26,3 +26,5 @@ Producción: el drone se corta en seco. Un segundo de silencio.
 Y dijo: hágase la luz.
 
 Y la luz se hizo.
+
+https://x.com/OMApproach/status/2117035293152813310?a=gH8B_JRH7Pn6Q4L4fDc&s=19
